@@ -1,4 +1,4 @@
-![Alt text](1000000251.jpg "Hole")
+![Alt text](20241027_204539.jpg "Hole")
 
 © 2026 S.C All rights reserved.
 
